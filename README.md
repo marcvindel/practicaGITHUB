@@ -1,1 +1,0 @@
-Primer fitxer al primer repositori de Marc Vindel Marsal
